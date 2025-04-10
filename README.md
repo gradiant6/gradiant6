@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @gradiant6
+- 👀 I’m interested in trackmania
+- 🌱 I’m currently learning fortran
+- 💞️ I’m looking to collaborate on nothing (yet)
+- 📫 Reaching me will be tough because I'm so tall
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: wemby > lebron
